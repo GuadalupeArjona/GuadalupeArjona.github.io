@@ -1,1 +1,0 @@
-# GuadalupeArjona.github.io
